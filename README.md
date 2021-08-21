@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @skylordafk
 - 👀 I’m interested in crypto economics.
 - 🌱 I’m currently learning about Polkadot and EVM.
-- 💞️ I’m looking to collaborate on crypto startup funding. 
+- 💞️ I’m looking to collaborate on crypto funding and business partnerships. 
 - 📫 How to reach me Twitter DM. Discord. NBA Top Shot ;)
 
 <!---
